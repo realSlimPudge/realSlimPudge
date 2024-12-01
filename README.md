@@ -1,5 +1,4 @@
-## филлип лаврушко
-### - "Пидорасы ебаные написали блять ебучее апи неработающее на сыр шарпе хуесоси убежищи"
+# ДяДя_Vova
 
 <!--
 **realSlimPudge/realSlimPudge** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
