@@ -1,4 +1,9 @@
 # ︻デ┳═ー
+ya dayn loooollll.
+rm -rf anus frontendera 
+
+
+
 
 <!--
 **realSlimPudge/realSlimPudge** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
